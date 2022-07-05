@@ -16,3 +16,6 @@ https://nHur2004.github.io/Run-BuddyX/
 
 ## Contribution
 Made with <3 by nHur.
+
+
+### ©️2019 Run Buddy, Inc 
